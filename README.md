@@ -1,0 +1,2 @@
+# typebot-speed-boost
+OTIMI
